@@ -1,4 +1,4 @@
-Ссылка на видео
+Ссылка на видео:
 
 https://disk.yandex.ru/d/uUm30xsWWDNWog
 
